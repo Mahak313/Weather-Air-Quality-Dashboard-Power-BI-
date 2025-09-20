@@ -87,7 +87,7 @@ The goal is to present **real-time conditions + forecasts** in a clear, visually
 ---
 
 ## 🔗 Connect With Me
-💼 [LinkedIn](www.linkedin.com/in/mahak-shrivastav-14a7002b8)  
+💼 [LinkedIn](www.linkedin.com/in/mahakshrivastav)  
 📧 Email: muskaanrastogi13@gmail.com
 
 ---
